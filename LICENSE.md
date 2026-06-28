@@ -1,4 +1,4 @@
-# 
+# Élite Affinity Photo preajustes para Mac OS | Principal Affinity Photo preajustes para PC Windows. Con gestión de capas y muestras de color — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
